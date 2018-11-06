@@ -1,3 +1,2 @@
-ddddddddddddddddddddddddddddddddddddddddddddddddddd 
-dsmmsdm,ds,sdddddkkddddddddddddddddddddddkkkkkk
-dmddddmdfdmmdekkkkkkkkkkkkkkkkkkkkkkkkkkkkkkkk
+
+cloud computing is a way of committing changes to internet
